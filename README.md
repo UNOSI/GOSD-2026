@@ -42,8 +42,3 @@
 - 附录：指标体系与数据来源
 - 附录B：全球数字公共品编码体系
 - 致谢
-
-英文版：https://f16qo26uhe1.feishu.cn/wiki/EHX1wljSSieyx4kToltctP4JnCg
-
-❗弃用素材汇总
-每一个二级标题不超过 5 页~
